@@ -18,4 +18,10 @@ I've heard about this situation when it first got announced last year, but I did
 
 # September 30, 2025
 # The "6 7" phrase
-I... don't know. There's a lot of origins, but the real one isn't clear. One of them is a kid screaming "Aye, 6 7!" at a school basketball game, which is mainly why kids are screaming it. Another is from a song where he says he's 6'7. There's also one from another song, saying they're from "67th street". There's many more, but these are the main ones.
+I... don't know. There's a lot of origins, but the real one isn't clear. One of them is a kid screaming "Aye, six seven!" at a school basketball game, which is mainly why kids are screaming it. Another is from a song where he says he's 6'7. There's also one from another song, saying they're from "67th street". There's many more, but these are the main ones.
+
+# October 20, 2025
+# Bungle On Board Logic Game
+Franklin - Class 2, Seat 91A
+Hardeep - Class 3, Seat 61F
+Maria - Class 1, Seat 35B
