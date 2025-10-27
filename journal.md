@@ -25,3 +25,9 @@ I... don't know. There's a lot of origins, but the real one isn't clear. One of 
 Franklin - Class 2, Seat 91A
 Hardeep - Class 3, Seat 61F
 Maria - Class 1, Seat 35B
+
+# October 27, 2025
+# Bungle on Board Logic Game (2)
+Fiona - Gado Gado, Creme Brulee
+Tobias - French Ceviche, French Apple Cake
+Leanne - Beef Wellington, Raspberry Tiramisu
