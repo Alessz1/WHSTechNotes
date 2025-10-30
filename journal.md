@@ -20,6 +20,11 @@ I've heard about this situation when it first got announced last year, but I did
 # The "6 7" phrase
 I... don't know. There's a lot of origins, but the real one isn't clear. One of them is a kid screaming "Aye, six seven!" at a school basketball game, which is mainly why kids are screaming it. Another is from a song where he says he's 6'7. There's also one from another song, saying they're from "67th street". There's many more, but these are the main ones.
 
+
+# October 6, 2025
+# AI policy
+If I were in charge for how this school uses AI, here's what I'd do. I wouldn't mind if students used AI to write essays, but not for the whole thing. Sure, maybe a little bit if you can't think of ideas to write, but please do not just make your whole essay AI generated. Plus, more teachers should use AI detectors to see if something was made by a human or robot. If an assignment requires to draw something, **absolutely no AI art.** It's lazy, and it doesn't matter if you are a bad artist, just draw something for it. So yeah, there's what I would do if I were in charge of the AI policy.
+
 # October 20, 2025
 # Bungle On Board Logic Game
 Franklin - Class 2, Seat 91A
