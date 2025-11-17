@@ -36,3 +36,12 @@ Maria - Class 1, Seat 35B
 Fiona - Gado Gado, Creme Brulee
 Tobias - French Ceviche, French Apple Cake
 Leanne - Beef Wellington, Raspberry Tiramisu
+
+
+# November 10, 2025
+# Technology and the Holidays
+
+
+# November 17, 2025
+# Thanksgivng Break
+Absolutely
