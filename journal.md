@@ -45,3 +45,13 @@ Leanne - Beef Wellington, Raspberry Tiramisu
 # November 17, 2025
 # Thanksgivng Break
 Absolutely
+
+# December 1, 2025
+
+# December 8, 2025
+# Waymo Investigation
+The Waymo team should definitely step up their AI softwares, and there are multiple ways to do so. First off, better detection for a lot of things. It should be easily able to detect a school bus, and way more one that has the stop sign out. I don't understand how it doesn't think a massive yellow vehicle with a sign clearly telling you to stop, especially since the lights on it blink. If I were on the team, I'd recommend to absolutely test out its detection on school bus stop signs to its limit, making sure no mistakes are made. Another thing that makes me upset, companies using AI for everything. In my vision, using AI just a tiny bit isn't awful, but don't just overuse it. Humans can do it a lot better, and switching everything to AI isn't really a good idea.
+
+# December 15, 2025
+# Winter Break
+Just enjoy my break, that is all
