@@ -55,3 +55,11 @@ The Waymo team should definitely step up their AI softwares, and there are multi
 # December 15, 2025
 # Winter Break
 Just enjoy my break, that is all
+
+# January 6, 2026
+# Technology over Winter Break
+I used techonology in many ways during the break. I used my computer way more now that I had way more free time. I watched more stuff on my tv since again, I had more free time. Since my birthday was during break, I got a few birthday presents, one of them being an electronic piano. It was really fun to use, and I can't wait to learn it more. That's about all I used.
+
+# January 12, 2026
+# Safe Spaces Online
+It's really, REALLY important to have safe spaces online for pretty obvious reasons. Harassment online is just as bad as harassment in real life, and I'd even argue worse. Having welcoming spaces online (such as Discord, Minecraft, and Roblox for example) is to help protect people. There's a lot of terrible people online, and it's so much better if they stay out of stuff like that, which is why moderation is really important. I've been harassed online before, but I know a lot of people who experienced way worse harassment, the main one being my ex. What Autcraft is doing is exactly how things should be, actively moderated, welcoming to new people, and just overall good vibes from it. 
