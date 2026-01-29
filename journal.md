@@ -63,3 +63,7 @@ I used techonology in many ways during the break. I used my computer way more no
 # January 12, 2026
 # Safe Spaces Online
 It's really, REALLY important to have safe spaces online for pretty obvious reasons. Harassment online is just as bad as harassment in real life, and I'd even argue worse. Having welcoming spaces online (such as Discord, Minecraft, and Roblox for example) is to help protect people. There's a lot of terrible people online, and it's so much better if they stay out of stuff like that, which is why moderation is really important. I've been harassed online before, but I know a lot of people who experienced way worse harassment, the main one being my ex. What Autcraft is doing is exactly how things should be, actively moderated, welcoming to new people, and just overall good vibes from it. 
+
+# January 29, 2026
+# Testing
+I don't know which test I took yesterday exactly, I can't remember that well, but I had a free day on Tuesday. I took one test for "reading" in the first half, and I had a "language" one on the other half of testing hours. The tests weren't hard, I was just really slow answering. One thing that was bad was the people that I had to next to during the test. They were really, REALLY annoying, but I just moved after I finished my test. I don't have much else to answer or say, that's basically it.
